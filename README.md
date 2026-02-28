@@ -1,0 +1,1 @@
+# Quick-Commerce-Sales-Intelligence-Blinkit-Case-Study
